@@ -1,2 +1,0 @@
-# tongyunxuan
-www.tongyunxuan.com
